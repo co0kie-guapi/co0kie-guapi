@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+It's co0kie You can also call me.. emm whatever🫡
+
+I anticipate that our communication will be fruitful and rewarding.😊
+
+
+- 🌱 I’m currently learning machine learning and unity 
+- 🤔  graphic programming enginee in the planning stage
+
+
 <!--
 **co0kie-guapi/co0kie-guapi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
