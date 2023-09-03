@@ -6,7 +6,7 @@ I anticipate that our communication will be fruitful and rewarding.😊
 
 
 - 🌱 I’m currently learning machine learning and unity 
-- 🤔  graphic programming enginee in the planning stage
+- 🤔 Developing the graphic programming engine is in the planning stage
 
 
 <!--
