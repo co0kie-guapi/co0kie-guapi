@@ -4,7 +4,6 @@ It's co0kie You can also call me.. emm whatever🫡
 
 I anticipate that our communication will be fruitful and rewarding.😊
 
-<a href="https://www.linkedin.com/in/co0kie-b19b16228/" target="_blank"><i class="fab fa-linkedin-in"></i></a>
 
 - 🌱 I’m currently learning machine learning and unity 
 - 🤔  graphic programming enginee in the planning stage
